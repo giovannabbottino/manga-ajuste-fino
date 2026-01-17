@@ -1,0 +1,1 @@
+# manga-ajuste-fino
